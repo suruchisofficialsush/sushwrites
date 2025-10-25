@@ -1,2 +1,4 @@
 # sushwrites
-this is my official website where i can convey thoughts to people in my own way
+HEY THERE! This is my official website where I can convey thoughts to people in my own way.
+I AM HERE TO LET PEOPLE KNOW HOW WE SHOULD DEAL WITH SITUATIONS IN DIFFERENT PHASES OF LIFE BASED ON MY EXPERIENCE SO THAT IT WOULD BE EASY FOR YOU GUYS TO DEAL THOSE SITUATIONS.
+I HOPE I WON'T DISAPPOINT YOU GUYS.
